@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @lancerubi
-- 👀 I’m interested in coding
+- 👀 I’m interested in programming
 - 🌱 I’m currently learning other programming langguage
 - 💞️ I’m looking to collaborate on my upcoming projects
 - 📫 How to reach me: laurenceocampo24@gmail.com / 09564009824
